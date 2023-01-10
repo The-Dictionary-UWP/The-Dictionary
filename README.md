@@ -1,1 +1,1 @@
-# The Dictionary
+# <center> The Dictionary
